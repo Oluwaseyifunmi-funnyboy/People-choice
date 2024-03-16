@@ -1,2 +1,2 @@
 # People-choice
-Oluwaseyifunmi-funnyboy/people-choice
+Oluwaseyifunmi-funnyboy/people-choice.git.com
